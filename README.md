@@ -1,1 +1,1 @@
-# Hogwart-Artifacts-Online
+# Hogwart Artifacts Online
